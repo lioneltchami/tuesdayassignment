@@ -1,1 +1,2 @@
 # tuesdayassignment
+Agoro Suliyat  
